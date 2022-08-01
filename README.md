@@ -1,1 +1,1 @@
-# Hi there, I'm Nikita..
+# Hi, I'm Nikita..
